@@ -3,4 +3,4 @@
 
 
 ### and me:
-![me](https://media.giphy.com/media/VbnUQpnihPSIgIXuZv/giphy.gif)
+![me](https://media.giphy.com/media/9rtpurjbqiqZXbBBet/giphy.gif)
