@@ -1,3 +1,1 @@
-(https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExam5mbWo3MjYyN2dpcndodWFranJyOW1qcXBsdGxjYnJsZDRyc29vNyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/04DMYESomjb6BCBNB8/giphy.gif)
-
-
+https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExanlqM3Q3dHYxYTFmeHBvZnY5amJ6Ym9hY3JpZHNza3o3NTR4cWxzcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/yxy69FCE06Ql0Fjk4Z/giphy.gif
